@@ -11,7 +11,7 @@ Cook Time: 30-45 Mins
 ## Equipment
 
 - 2x Large Mixing Bowl
-- Deep Fat Fryer or bot deep enough to deep fry in
+- Deep Fat Fryer or pot deep enough to deep fry in
 - Wire Rack lined with kitchen paper
 - 2x Large Tray/Plate
 - Measuring Jug
