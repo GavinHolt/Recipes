@@ -2,7 +2,7 @@
 
 # Crispy Chilli Beef
 
-Serves: 4-6 people (depending on how much they eat)
+Serves: 2-4 people (depending on how much they eat)
 
 Prep Time: 30 Mins (if you don't count marinating...)
 
