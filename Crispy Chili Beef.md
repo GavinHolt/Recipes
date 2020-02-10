@@ -1,3 +1,5 @@
+![Crispy Chilli Beef](img/chilli_beef/finished.jpg)
+
 # Crispy Chilli Beef
 
 Serves: 4-6 people (depending on how much they eat)
@@ -72,6 +74,8 @@ Cook Time: 30-45 Mins
    1. Be sure to stir often, as you do not want garlic, ginger or any solids from the sweet chilli sauce to stick to the bottom and burn
 4. Once boiling, keep on an aggressive simmer for 8-10 minutes, or until the sauce has thickened and is looking glossy.
    1. You want the sauce to coat the beef well, but not become too sticky, err on the side of caution and go under, rather than over if it comes to it!
+
+![Beef tossed in sauce, in wok](img/chilli_beef/in_wok.jpg)
 
 ### Combine
 
