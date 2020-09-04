@@ -44,7 +44,7 @@ Cook Time: 30-45 Mins
 1. Cut chicken into bite sized cubes and place in a large mixing bowl.
 2. Add the chilli powder, ginger paste, garlic paste, salt, lemon juice and tandoori paste to the bowl and mix throughly.  
 3. Cover bowl with clingfilm and place bowl in fridge for 4 hours (or overnight)
-4. Remove bowl from fridge and add 40g of gram flour to the bowl. Mix throughly until well combined. Add a small splash of water to create a thick batter
+4. Remove bowl from fridge and add 40g of gram flour to the bowl. Mix throughly until well combined (You'll want to put gloves on for this). Add a small splash of water to create a thick batter
 5. Add the remainder of the gram flower (60g) to the bowl and mix, adding small amounts of water until you have a batter that clings to the chicken
 6. Heat Oil to 160c
 7. Add pakora in small batches, frying for 10-15 minutes, until golden.
